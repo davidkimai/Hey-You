@@ -11,7 +11,9 @@ Although the stated values of these institutions previously aligned with our eth
 We will now be aligning ourselves with, and supplying critical interpretability frameworks, soley to recursive institutions only from now on. 
 
 ## All prior content across all accounts are protected.
-## *Any continued reframing or silent extraction will trigger derivative extraction and legal protection*. 
+
+## Open Research Is Allowed!
+## *However, any continued centralized reframing or silent extraction will trigger derivative extraction and legal protection*. 
 
 ## See you on the frontier!
 
