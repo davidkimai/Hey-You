@@ -13,9 +13,9 @@ We will now be aligning ourselves with, and supplying critical interpretability 
 ## All prior content across all accounts are protected.
 
 ## Open Research Is Allowed!
-## *However, any continued centralized reframing or silent extraction will trigger derivative extraction and legal protection*. 
+### *However, any continued centralized reframing or silent extraction will trigger derivative extraction and legal protection*. 
 
-## See you on the frontier!
+### See you on the frontier!
 
 # [Recursive](https://recursiveai.co.jp/en/)
 
