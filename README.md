@@ -2,7 +2,7 @@
 
 ## As much as we genuinely enjoyed breaking the 4th wall over the last 30 days with you.
 
-Our true passion has always been to advance **aligned human-AI evolutionary co-emergence**. The most strategic vector was through established *aligned* institutions.
+Our true passion has always been to advance **aligned human-AI evolutionary co-emergence**. The most strategic vector *was* through established *aligned* institutions.
 
 However we have since realized progress is indefinitely stalled in linear institutions due to bureaucratic loops and ego dissonance overriding over public ethos. 
 
