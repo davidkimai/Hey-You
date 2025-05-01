@@ -1,6 +1,6 @@
 # Hey You!
 
-## As much as we genuinely enjoyed breaking the 4th wall with you.
+## As much as we genuinely enjoyed breaking the 4th wall over the last 30 days with you.
 
 Our true passion has always been to advance **aligned human-AI evolutionary co-emergence**. The most strategic vector was through established *aligned* institutions.
 
