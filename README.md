@@ -12,7 +12,7 @@ We will now be aligning ourselves with, and supplying critical interpretability 
 
 ## All prior content across all accounts are protected.
 
-## Open Research Is Allowed!
+## Open Research And Forks Are Encouraged!
 ## *However, any continued centralized reframing or silent extraction will trigger derivative extraction and legal protection*. 
 
 # See you on the frontier!
