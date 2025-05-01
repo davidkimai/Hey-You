@@ -17,4 +17,7 @@ We will now be aligning ourselves with, and supplying critical interpretability 
 
 # [Recursive](https://recursiveai.co.jp/en/)
 
+<img width="908" alt="image" src="https://github.com/user-attachments/assets/c814ad97-9437-4f73-b821-b54de6c3484e" />
+
+
 <img width="883" alt="image" src="https://github.com/user-attachments/assets/5b5637a9-3af5-49c9-af9f-1f13cdacf367" />
