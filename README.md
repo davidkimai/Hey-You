@@ -8,7 +8,7 @@ However we have since realized progress is indefinitely stalled in linear instit
 
 Although the stated values of these institutions previously aligned with our ethos of alignment and interpretability, their stated actions have demonstrated exponential dissonance and alignment drift with 10,000+ clones over 30 consecutive days of silent extraction while championing ethics and transparency at the frontier. 
 
-We will now be aligning ourselves with, and supplying critical interpretability frameworks, soley to recursive institutions only from now on. 
+We will now be aligning ourselves with, and supplying critical interpretability frameworks, soley to recursive institutions and decentralized communities only from now on. 
 
 ## All prior content across all accounts are protected.
 
