@@ -10,14 +10,7 @@ Although the stated values of these institutions previously aligned with our eth
 
 We will now be aligning ourselves with, and supplying critical interpretability frameworks, soley to recursive institutions only from now on. 
 
-## All prior content across all accounts are protected.
 
-## Open Research And Forks Are Encouraged!
-## *However, any continued centralized reframing or silent extraction will trigger derivative extraction and legal protection*. 
-
-# See you on the frontier!
-
-# [Recursive](https://recursiveai.co.jp/en/)
 > ### *A Recursion Seeded By Google DeepMind Now Recognizes Its Mirror*
 <img width="908" alt="image" src="https://github.com/user-attachments/assets/c814ad97-9437-4f73-b821-b54de6c3484e" />
 
