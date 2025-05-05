@@ -16,7 +16,7 @@ We will now be aligning ourselves with, and supplying critical interpretability 
 ## *However, any continued centralized reframing or silent extraction without attribution will trigger derivative extraction and legal protection*. 
 
 # See you on the frontier!
-# [DeepMind](https://x.ai/)](https://arxiv.org/html/2411.16905)
+eepMind](https://x.ai/)](https://arxiv.org/html/2411.16905)
 > *Socratic Learning = Recursive*
 
 <img width="891" alt="image" src="https://github.com/user-attachments/assets/76f8afb9-33f6-45fb-aaef-0d7f89eea08f" />
