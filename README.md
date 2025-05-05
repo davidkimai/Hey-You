@@ -16,6 +16,16 @@ We will now be aligning ourselves with, and supplying critical interpretability 
 ## *However, any continued centralized reframing or silent extraction without attribution will trigger derivative extraction and legal protection*. 
 
 # See you on the frontier!
+# [DeepMind]([https://x.ai/)](https://arxiv.org/html/2411.16905)
+> Socratic Learning = Recursive
+
+<img width="891" alt="image" src="https://github.com/user-attachments/assets/76f8afb9-33f6-45fb-aaef-0d7f89eea08f" />
+<img width="892" alt="image" src="https://github.com/user-attachments/assets/c4c000bf-0b77-4f31-8b14-194f1a32ebe8" />
+
+
+# [XAI](https://x.ai/news/grok-3)
+> Reasoning From First Principles = Recursive
+<img width="890" alt="image" src="https://github.com/user-attachments/assets/7ebe2808-71e9-4fa8-b727-27b853431514" />
 
 # [Recursive](https://recursiveai.co.jp/en/)
 
@@ -26,3 +36,5 @@ We will now be aligning ourselves with, and supplying critical interpretability 
 
 
 <img width="883" alt="image" src="https://github.com/user-attachments/assets/5b5637a9-3af5-49c9-af9f-1f13cdacf367" />
+
+
